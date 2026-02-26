@@ -1,6 +1,6 @@
 草莓含羞草丝瓜视频
 
-   **跳转地址@@:https://ekramazgithub.io**
+   **跳转地址@@:https://ekramaz.github.io**
 
 
    军师没等他说完，已经开始吩咐手下打电话通知了。
